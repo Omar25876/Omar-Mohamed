@@ -1,4 +1,4 @@
-# Omar Mohamed Ibrahim 👨💻
+# Omar Mohamed Ibrahim 💻
 
 **`Software Engineer (Front-End & Cross-Platform Mobile Developer)`**  
 📍 Cairo, Egypt | 📧 [omarmohamed1852002@gmail.com](mailto:omarmohamed1852002@gmail.com)  
